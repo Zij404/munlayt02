@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Zij404
-- 🌱 I’m currently 4th year college BSIT
+- 🌱 I’m Bachelor of Science in Information Technology graduate
 - 💞️ I’m looking to collaborate on anything
-- 📫 You can contact me via Email: <a href="#">armeaczijei29@gmail.com</a>
+- 📫 You can contact me via Email: <a href="#">czijeiv@gmail.com</a>
   
 - Take care everyone!
 
